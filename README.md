@@ -1,1 +1,1 @@
-# T-cnicas-de-Aprendizaje-Autom-tico-MIA---PER-11399
+# Técnicas-de-Aprendizaje-Automáico-MIA---PER-11399
